@@ -27,7 +27,7 @@ The main aim is to recommend any alternative/substitute to be used in place of s
 
 ---
 ## Contact 📝
-Chandrashekhar - 
-* [Mail](mailto:kshirsagarchandu18@gmail.com "kshirsagarchandu18@gmail.com")
-* [Linkedin](https://www.linkedin.com/in/chandrashekhar-kshirsagar-aa2a60221/ "Linkedin")
+Gourav - 
+* [Mail](mailto:ghamgaurav@gmail.com "ghamgaurav@gmail.com")
+* [Linkedin](https://www.linkedin.com/in/gourav-gham-475b57226/ "Linkedin")
 
